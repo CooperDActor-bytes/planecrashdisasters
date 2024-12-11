@@ -1,2 +1,2 @@
 # planecrashdisasters
-all of the plane crashes in one
+Here At SaltyMedia we pay respect for the lives lost
